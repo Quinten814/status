@@ -1,2 +1,2 @@
 # status
-status more like stasus amiright?
+i'll add stuff here soon i promise
